@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **popo090699@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-3XIC2aHi652WUmwJ0ceTWrK5CMe4c1K/view?usp=sharing](https://drive.google.com/file/d/1-3XIC2aHi652WUmwJ0ceTWrK5CMe4c1K/view?usp=sharing)
+- 📄 Know about my experiences (resume)[https://drive.google.com/file/d/1xRQwR9YJFyWnNEk_CwKUPWZLk2XSrc3u/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
